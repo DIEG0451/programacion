@@ -2,4 +2,17 @@
 
 profe JC estuvo aquí :trollface:
 socium meneses :shipit:
-manjarate gomez 6️⃣7️⃣
+
+
+
+
+
+
+
+
+
+
+Empanadas con queso
+Empanadas de pollo 
+Aqui estoy siempre 
+Reportando desde abajo :D
