@@ -6,7 +6,7 @@ manjarate gomez 6️⃣7️⃣
 hola soy el erick 🤙
 
 
-
+hola soy diego :D (aquí dejo mi huella de mi presentación :D)
 
 
 
